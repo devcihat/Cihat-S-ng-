@@ -1,1 +1,0 @@
-# Cihat-S-ng-
